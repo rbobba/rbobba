@@ -42,7 +42,7 @@
 - **MCA** — Sikkim Manipal University
 - **B.Sc.** — Osmania University (Mathematics, Physics, Computer Science)
 
-**IEEE Member** · Alpha Beta Gamma (Business Honor Society)
+**IEEE Senior Member** · Alpha Beta Gamma (Business Honor Society)
 
 ---
 
